@@ -7,5 +7,7 @@ Here you will be able to find and stream all of my music/beats, hear some exclus
 [SOUNDCLOUD](https://soundcloud.com/yungyogurttube)
 [TWITTER](https://twitter.com/yungyogurttube/)
 [YOUTUBE](https://www.youtube.com/channel/UCSlBcUWkRYPZkzLJSjmItZA)
-[EMAIL](YUNGYOGURTTUBE@GMAIL.COM)
+
+***CONTACT ME AT***
+YUNGYOGURTTUBE@GMAIL.COM
 
