@@ -9,5 +9,7 @@ Here you will be able to find and stream all of my music/beats, hear some exclus
 [YOUTUBE](https://www.youtube.com/channel/UCSlBcUWkRYPZkzLJSjmItZA)
 
 ***CONTACT ME AT***
+For Collaborations and business inquiries. 
 YUNGYOGURTTUBE@GMAIL.COM
 
+$5 per Beat Lease but I always work out deals.
